@@ -1,2 +1,2 @@
 SQL
-To be better
+To be the best
